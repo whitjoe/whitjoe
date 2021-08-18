@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @whitjoe
-- 👀 I’m interested in plants, science, and plant science :)
+- 👀 I’m interested in plants and science :)
 - 🌱 I’m currently learning business data analytics
 
 
